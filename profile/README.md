@@ -1,4 +1,4 @@
-<h1>✨ Madridbet Giriş 2025 – Bahis ve Casino Deneyimi! ✨</h1>
+<h1>✨ Meritking Giriş 2025 – Bahis ve Casino Deneyimi! ✨</h1>
 Geçici Süre Kingroyal, Meritking ve Madridbet Markası Olarak Sizlere Aşağıda ki Linklerden Hizmet Sağlayacağız.</p>
   <p>🎁 Yeni Sitelerimizde Bonuslar Sizi Bekliyor.. Üye Ol Deneme Bonusları ve Hoşgeldin Bonuslarını Al!</p>
   <strong>Yeni Giriş Adresi:</strong> <a href="https://heylink.me/denemeal">Giriş için TIKLAYIN</a></p>
